@@ -1,3 +1,2 @@
 - 👋 @OhtoNik
-- 👀 Tääl ei oo midii ...
 
